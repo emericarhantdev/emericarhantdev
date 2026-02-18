@@ -29,6 +29,7 @@ Robotics engineer with **5+ years** across simulation, embedded platforms, and r
 
 - 📧 arhant.emeric-is@outlook.fr
 - 💼 [LinkedIn](https://www.linkedin.com/in/emeric-arhant-113784290/)
+- 🌐 [Website](https://www.linkedin.com/in/emeric-arhant-113784290/](https://emericarhant.com/)
 - 📍 Brittany, France (open to relocation)
 
 ---
